@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Shadow-Hokage.
+- 👋 Hi, I’m Yash.
 - 👀 I’m interested in everything related to computers from websites to games.
 - 🌱 I’m currently learning anything i can find on the internet.
 - 💞️ I’m looking to collaborate on a cool looking webiste.
